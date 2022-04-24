@@ -2,6 +2,7 @@
 - 👀 I’m interested in a girl
 - 🌱 I’m currently learning nothin
 - 💞️ I’m looking to collaborate on anything
+- i love my girl azzra hafifa
 - 📫 How to reach me ... no!
 
 <!---
